@@ -1,6 +1,6 @@
 <div align="center">
 
-![Views](https://komarev.com/ghpvc/?username=Hatr3dWriter &style=plastic&color=8874a2)
+[Views](https://komarev.com/ghpvc/?username=Hatr3dWriter &style=plastic&color=8874a2)
 
 ## <div align="center"> About me!!
 
