@@ -1,4 +1,4 @@
-https://github.com/user-attachments/assets/c81e813f-f7a3-454f-b988-55d997030f5f
+![1765549125457.jpg](https://github.com/user-attachments/assets/f7f27980-dc8f-4d00-aa9d-d182e37d34f3)
 
 ## <div align="center"> About Me ۶ৎ
 
