@@ -1,5 +1,5 @@
 ## <div align="center"> About me!!
 
-Hii this is **nhara** well usually called nara for short.
+<div align="center"> Hii this is **nhara** well usually called nara for short.
 
-wait no clue yet about this ᯣ_ᯣ
+<div align="center"> wait no clue yet about this ᯣ_ᯣ
