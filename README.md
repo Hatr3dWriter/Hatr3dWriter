@@ -6,11 +6,11 @@
 
 <p> Semi-fandoms I rarely know other fandoms in there, still gonna int tho^^ </p>
 
-<p> personality—? well I have pmo bpd, but I'd say I'm friendly somtimes, I might fucked up by peculiarly saying smth rude towards you (or not peculiar I think), I really mean it, I'm not gonna change it for you, I only act this when I'm pissed.</p>
+<p> personality—? well I have pmo bpd, but I'd say I'm friendly somtimes you can int/c+h. I might fucked up by peculiarly saying smth rude towards you (or not peculiar I think), I really mean it, I'm not gonna change it for you, I only act this when I'm no mood. </p>
 
 <p> age—? I'm a minor </p>
 
-<div
+</div
 
 ![404b69129dc19f7eff1db6663c958e8d.gif](https://github.com/user-attachments/assets/96335563-7778-45b8-b017-3c0802050f05)
 
