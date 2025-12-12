@@ -1,6 +1,6 @@
 <div align="center">
 
-## <span style="color:#ff99cc!;">about me </span>
+## <span style="color:#ff99cc!;">about me !! </span>
 
 <p>Hii this is Nhara well usually called nara for short. She/they it/alien</p>
 
