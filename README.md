@@ -1,8 +1,6 @@
 <div align="center">
 
-[Views](https://komarev.com/ghpvc/?username=Hatr3dWriter &style=plastic&color=8874a2)
-
-## <div align="center"> About me!!
+## <span style="color:#ff99cc!;">about me </span>
 
 <p>Hii this is Nhara well usually called nara for short. She/they it/alien</p>
 
