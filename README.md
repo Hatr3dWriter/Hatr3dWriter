@@ -1,3 +1,5 @@
+https://github.com/user-attachments/assets/c81e813f-f7a3-454f-b988-55d997030f5f
+
 ## <div align="center"> About Me ۶ৎ
 
 <div align="center"> <p> Haii this is Nhara well maybe you seen me on the bakery (mostly)— and rarely seen outside. Just use It/They pronounce ( ˊᵕˋ ; ).</p>
