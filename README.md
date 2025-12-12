@@ -14,7 +14,7 @@
 
 ![404b69129dc19f7eff1db6663c958e8d.gif](https://github.com/user-attachments/assets/96335563-7778-45b8-b017-3c0802050f05)
 
-<imgsrc="https://readme-typing-svg.demolab.com?font=Inconsolata&weight=500&size=50&duration=4000&pause=300&color=A7A459&center=true&vCenter=true&multiline=true&repeat=false&random=false&width=1300&height=140&lines=I'm not done yet!+%E2%9C%A9" width="70%" />
+<img src="https://readme-typing-svg.demolab.com?font=Inconsolata&weight=500&size=50&duration=4000&pause=300&color=A7A459&center=true&vCenter=true&multiline=true&repeat=false&random=false&width=1300&height=140&lines=Baii!+%E2%9C%A9" width="70%" />
 
 
 
