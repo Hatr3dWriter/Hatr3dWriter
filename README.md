@@ -8,7 +8,7 @@
 
 <p> personality—? well I have pmo bpd, but I'd say I'm friendly somtimes you can int/c+h idc at all. I might fucked up by peculiarly saying smth rude towards you (or not peculiar I think), I really mean it, I'm not gonna change it for you, I only act this when I'm no mood. </p>
 
-<p> age—? I'm a MINOR as adolescent</p>
+<p> age—? I'm a Adult</p>
 
 </div
 
