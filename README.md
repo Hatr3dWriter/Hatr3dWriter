@@ -1,4 +1,4 @@
-<div align="center"> ## About me!!
+## <div align="center"> About me!!
 
 Hii this is **nhara** well usually called nara for short.
 
