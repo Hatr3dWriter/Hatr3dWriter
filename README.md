@@ -1,7 +1,5 @@
 <div align="center">
 
-<img width="500" height="250" alt="image" src="https://github.com/user-attachments/assets/b9790ebc-3727-4138-a303-c987f29b904c" />
-
 ## <div align="center"> About me!!
 
 <div align="center"> Hii this is Nhara well usually called nara for short. She/they it/alien
