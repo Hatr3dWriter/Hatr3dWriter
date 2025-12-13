@@ -4,7 +4,7 @@
 
 ## <div align="center"> About Me ۶ৎ
 
-<div align="center"> <p> Haii this is Nhara well maybe you seen me on the bakery (mostly)— and rarely seen outside. Just use It/They pronounce ( ˊᵕˋ ; ).</p>
+<div align="center"> <p> Haii this is Nhara well maybe you seen me on the bakery (mostly)— and rarely seen outside. Just use She/it pronounce ( ˊᵕˋ ; ).</p>
 
 <p> Semi-fandoms I rarely know other fandoms in there, still gonna int tho^^ </p>
 
