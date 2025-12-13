@@ -1,6 +1,6 @@
 ![1765601949101.jpg](https://github.com/user-attachments/assets/92473630-f63a-4200-b73c-8586a87f8957)
 
-<img src="https://readme-typing-svg.demolab.com?font=Sans-serif&weight=500&size=80&duration=4000&pause=300&color=FF5A4F&center=true&vCenter=true&multiline=true&repeat=false&random=true&width=1300&height=140&lines=Welcome!+%E2%9C%A9" width="100%" />
+<img src="https://readme-typing-svg.demolab.com?font=Sans-serif&weight=500&size=80&duration=4000&pause=300&color=FC0032&center=true&vCenter=true&multiline=true&repeat=false&random=true&width=1300&height=140&lines=Welcome!+%E2%9C%A9" width="100%" />
 
 ## <div align="center"> About Me ۶ৎ
 
@@ -18,4 +18,4 @@
 
 <div align="center">
 
-<img src="https://readme-typing-svg.demolab.com?font=Sans-serif&weight=500&size=70&duration=4000&pause=300&color=FF5A4F&center=true&vCenter=true&multiline=true&repeat=false&random=false&width=1300&height=140&lines=Baii!+%E2%9C%A9" width="90%" />
+<img src="https://readme-typing-svg.demolab.com?font=Sans-serif&weight=500&size=70&duration=4000&pause=300&color=FC0032&center=true&vCenter=true&multiline=true&repeat=false&random=false&width=1300&height=140&lines=Baii!+%E2%9C%A9" width="90%" />
