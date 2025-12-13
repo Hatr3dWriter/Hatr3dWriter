@@ -1,6 +1,6 @@
 ![1765602663568.jpg](https://github.com/user-attachments/assets/82846b9b-3e32-4421-85e8-03fa7690e672)
 
-<img src="https://readme-typing-svg.demolab.com?font=Sans-serif&weight=500&size=80&duration=4000&pause=300&color=FC0032&center=true&vCenter=true&multiline=true&repeat=false&random=true&width=1300&height=140&lines=Welcome!+%E2%9C%A9" width="100%" />
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=2000&pause=4000&color=B0F25D&center=true&width=400&lines=HAIHII+!!1!;WELCOME!+%E2%9C%A9)](https://git.io/typing-svg)
 
 ## <div align="center"> About Me ۶ৎ
 
