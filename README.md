@@ -12,6 +12,12 @@
 
 <p> age—? I'm a MINOR</p>
 
+<p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31pbthlknnl3cmb652bjyxnk6loi&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31pbthlknnl3cmb652bjyxnk6loi&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=true&profanity=true&bar_color=53b14f&bar_color_cover=false&mode=dark">
+  </a>
+</p>
+
 </div
 
 ![404b69129dc19f7eff1db6663c958e8d.gif](https://github.com/user-attachments/assets/96335563-7778-45b8-b017-3c0802050f05)
