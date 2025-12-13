@@ -1,4 +1,4 @@
-![1765601949101.jpg](https://github.com/user-attachments/assets/92473630-f63a-4200-b73c-8586a87f8957)
+<![1765601949101.jpg](https://github.com/user-attachments/assets/92473630-f63a-4200-b73c-8586a87f8957)>
 
 <img src="https://readme-typing-svg.demolab.com?font=Sans-serif&weight=500&size=80&duration=4000&pause=300&color=FF5A4F&center=true&vCenter=true&multiline=true&repeat=false&random=true&width=1300&height=140&lines=Welcome!+%E2%9C%A9" width="100%" />
 
