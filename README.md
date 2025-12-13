@@ -1,6 +1,6 @@
-![1765549125457.jpg](https://github.com/user-attachments/assets/f7f27980-dc8f-4d00-aa9d-d182e37d34f3)
-
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=Hatr3dWriter&label=　　View　　　&color=fdd5df&style=flat" alt="Hatr3dWriter" />
+
+![1765549125457.jpg](https://github.com/user-attachments/assets/f7f27980-dc8f-4d00-aa9d-d182e37d34f3)
 
 ## <div align="center"> About Me ۶ৎ
 
