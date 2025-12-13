@@ -18,6 +18,8 @@
 
 ![404b69129dc19f7eff1db6663c958e8d.gif](https://github.com/user-attachments/assets/96335563-7778-45b8-b017-3c0802050f05)
 
+## <div align="center"> More info!!
+
 <div align="center">
 
 <img src="https://readme-typing-svg.demolab.com?font=Sans-serif&weight=500&size=70&duration=1000&pause=50&color=FC0032&center=true&vCenter=true&multiline=true&repeat=false&random=false&width=1300&height=140&lines=Not+Done!!" width="90%">
