@@ -1,4 +1,4 @@
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=Hatr3dWriter&label=　　Howmuchichanged　　　&color=FF5A4F&style=plastic" alt="Hatr3dWriter" />
+![Views](https://komarev.com/ghpvc/?username=Hatr3dWriter &style=plastic&color=FF5A4F)
 
 ![1765549125457.jpg](https://github.com/user-attachments/assets/f7f27980-dc8f-4d00-aa9d-d182e37d34f3)
 
