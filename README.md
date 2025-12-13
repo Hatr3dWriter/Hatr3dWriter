@@ -6,12 +6,12 @@
 
 <div align="center"> <p> Haii this is Nhara well maybe you seen me on the bakery (mostly)— and rarely seen outside. Just use She/it pronounce ( ˊᵕˋ ; ).</p>
 
-<p> I have multiple fandom— but my mains are MD, knog,blackbutler,every object show and etc...and my hoobies are drawing, fashion, listening to music (Full charged), cooking, and writing (Sports). </p>
+<p> I have multiple fandom— but my mains are MD, Knog,blackbutler,every object show and etc...and my hoobies are drawing, fashion, listening to music (Full charged), cooking, and writing (Sports). </p>
 
 <p> Before you interact!
  1. I'm a minor and don't get 2 weird. 2. Kinda dry texter w everyone & everybody whoever I talk with, this depends on my moods.
 
-<p> I don't have any dni, anyone can interact I w mind at all, even nsfw. feel free to stop talking talking w me.<p>
+<p> I don't have any dni, anyone can interact I w mind at all. feel free to stop talking talking w me.<p>
 
 
 </div
@@ -20,6 +20,6 @@
 
 <div align="center">
 
-<img src="https://readme-typing-svg.demolab.com?font=Sans-serif&weight=500&size=70&duration=1000&pause=50&color=FC0032&center=true&vCenter=true&multiline=true&repeat=false&random=false&width=1300&height=140&lines=Done!!" width="90%">
+<img src="https://readme-typing-svg.demolab.com?font=Sans-serif&weight=500&size=70&duration=1000&pause=50&color=FC0032&center=true&vCenter=true&multiline=true&repeat=false&random=false&width=1300&height=140&lines=Not+Done!!" width="90%">
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=2000&pause=500&color=70B910&center=true&width=400&lines=baibaii+!!1!;Thanks+for+readings+^^)](https://git.io/typing-svg)
