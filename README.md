@@ -6,7 +6,7 @@
 
 <div align="center"> <p> Haii this is Nhara well maybe you seen me on the bakery (mostly)— and rarely seen outside. Just use She/it pronounce ( ˊᵕˋ ; ).</p>
 
-<p> I have multiple fandom— but my mains are MD, Knog,blackbutler,every object show and etc...and my hoobies are drawing, fashion, listening to music (Full charged), cooking,reading and writing. </p>
+<p> I have multiple fandom— but my mains are MD, Knog, blackbutler,every object show and etc...and my hoobies are drawing, fashion, listening to music (Full charged), cooking,reading and writing. </p>
 
 <p> Before you interact!
  1. I'm a minor and don't get 2 weird. 2. Kinda dry texter w everyone & everybody whoever I talk with, this depends on my moods.
