@@ -1,4 +1,4 @@
-<p ![Views](https://komarev.com/ghpvc/?username=Hatr3dWriter &style=plastic&color=FF5A4F)/p>
+<p ![Views](https://komarev.com/ghpvc/?username=Hatr3dWriter&style=plastic&color=FF5A4F)/p>
 
 ![1765549125457.jpg](https://github.com/user-attachments/assets/f7f27980-dc8f-4d00-aa9d-d182e37d34f3)
 
