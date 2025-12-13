@@ -12,16 +12,10 @@
 
 <p> age—? I'm a MINOR</p>
 
-<p align="center">
-  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31pbthlknnl3cmb652bjyxnk6loi&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31pbthlknnl3cmb652bjyxnk6loi&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=true&profanity=true&bar_color=53b14f&bar_color_cover=false&mode=dark">
-  </a>
-</p>
-
 </div
 
 ![404b69129dc19f7eff1db6663c958e8d.gif](https://github.com/user-attachments/assets/96335563-7778-45b8-b017-3c0802050f05)
 
 <div align="center">
 
-<img src="https://readme-typing-svg.demolab.com?font=Sans-serif&weight=500&size=70&duration=4000&pause=300&color=FF5A4F&center=true&vCenter=true&multiline=true&repeat=false&random=false&width=1300&height=140&lines=Baii!+%E2%9C%A9" width="70%" />
+<img src="https://readme-typing-svg.demolab.com?font=Sans-serif&weight=500&size=70&duration=4000&pause=300&color=FF5A4F&center=true&vCenter=true&multiline=true&repeat=false&random=false&width=1300&height=140&lines=Baii!+%E2%9C%A9" width="90%" />
