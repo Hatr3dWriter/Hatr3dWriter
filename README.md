@@ -1,6 +1,6 @@
 ![1765549125457.jpg](https://github.com/user-attachments/assets/f7f27980-dc8f-4d00-aa9d-d182e37d34f3)
 
-<img src="https://readme-typing-svg.demolab.com?font=Sans-serif&weight=500&size=80&duration=4000&pause=300&color=FF5A4F&center=true&vCenter=true&multiline=true&repeat=true&random=false&width=1300&height=140&lines=Welcome!+%E2%9C%A9" width="100%" />
+<img src="https://readme-typing-svg.demolab.com?font=Sans-serif&weight=500&size=80&duration=4000&pause=300&color=FF5A4F&center=true&vCenter=true&multiline=true&repeat=false&random=true&width=1300&height=140&lines=Welcome!+%E2%9C%A9" width="100%" />
 
 ## <div align="center"> About Me ۶ৎ
 
