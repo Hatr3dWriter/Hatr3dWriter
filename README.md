@@ -6,11 +6,11 @@
 
 <div align="center"> <p> Haii this is Nhara well maybe you seen me on the bakery (mostly)— and rarely seen outside. Just use She/it pronounce ( ˊᵕˋ ; ).</p>
 
-<p> Semi-fandoms I rarely know other fandoms in there, still gonna int tho^^ </p>
+<p> I have multiple fandom— but my mains are MD, knog,blackbutler,every object show and etc...and my hoobies are drawing, fashion, cooking, and writing (Sports). </p>
 
-<p> personality—? well I have bpd, but I'd say I'm friendly sometimes, you can int/c+h with me idc at all.</p>
+<p> Before you interact! — 1. I'm a minor and don't get 2 weird. 2. Kinda dry texter w everyone & everybody whoever I talk with, this depends on my moods.
 
-<p> age—? I'm a MINOR</p>
+<p> I don't have any dni,anyone can interact I w mind at all, even nsfw. feel free to stop talking talking w me.<p>
 
 </div
 
