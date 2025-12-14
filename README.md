@@ -1,6 +1,6 @@
 ![Untitled6_20251214161840.png](https://github.com/user-attachments/assets/3f36d6ef-02e7-4f62-bb3d-7607b76f1b5c)
 
-![1765602663568.jpg](https://github.com/user-attachments/assets/82846b9b-3e32-4421-85e8-03fa7690e672)
+<pWidth=100![1765602663568.jpg](https://github.com/user-attachments/assets/82846b9b-3e32-4421-85e8-03fa7690e672)/p>
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=2000&pause=4000&color=FC0032&center=true&width=400&lines=HAIHII+!!1!;WELCOME!+%E2%9C%A9)](https://git.io/typing-svg)
 
