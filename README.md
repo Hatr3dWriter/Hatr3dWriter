@@ -1,6 +1,4 @@
-![Untitled6_20251214161840.png](https://github.com/user-attachments/assets/3f36d6ef-02e7-4f62-bb3d-7607b76f1b5c)
-
-<pWidth=100![1765602663568.jpg](https://github.com/user-attachments/assets/82846b9b-3e32-4421-85e8-03fa7690e672)/p>
+![1765602663568.jpg](https://github.com/user-attachments/assets/82846b9b-3e32-4421-85e8-03fa7690e672)
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=2000&pause=4000&color=FC0032&center=true&width=400&lines=HAIHII+!!1!;WELCOME!+%E2%9C%A9)](https://git.io/typing-svg)
 
@@ -27,6 +25,3 @@
 <img src="https://readme-typing-svg.demolab.com?font=Sans-serif&weight=500&size=70&duration=1000&pause=50&color=FC0032&center=true&vCenter=true&multiline=true&repeat=false&random=false&width=1300&height=140&lines=Not+Done!!" width="90%">
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=2000&pause=500&color=70B910&center=true&width=400&lines=baibaii+!!1!;Thanks+for+readings+^^)](https://git.io/typing-svg)
-
-![Untitled6_20251214161835.png](https://github.com/user-attachments/assets/5844eaf3-293d-4e81-9e5e-72d7e1a3eeb0)
-
