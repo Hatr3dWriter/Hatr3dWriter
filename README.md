@@ -6,18 +6,20 @@
 
 ## <div align="center"> About Me ۶ৎ
 
-<div align="center"> <p> Haii this is Nhara well maybe you seen me on the bakery (mostly)— and rarely seen outside. Just use She/it pronounce ( ˊᵕˋ ; ).</p>
+<div align="center"> <p> Haii this is Nhara/Eleonore well maybe you seen me on the bakery (mostly)— and rarely seen outside. Just use She/it pronounce ( ˊᵕˋ ; ).</p>
 
 <p> Before you interact!
- 1. I'm a minor and don't get 2 weird. 2. Kinda dry texter w everyone & everybody whoever I talk with, this depends on my moods.
+ 1. I'm a minor and don't get 2 weird. 2. Cant say im nice i just done it.
 
-<p> I don't have any dni, anyone can interact I w mind at all. feel free to stop talking talking w me.<p>
+<p> I don't have any dni, anyone can interact w i dont mind at all except p3do. feel free to stop talking talking w me.<p>
 
 ## <div align="center"> More info!!
 
 <div align="center">
 
 ![404b69129dc19f7eff1db6663c958e8d.gif](https://github.com/user-attachments/assets/96335563-7778-45b8-b017-3c0802050f05)
+
+<p> Im a multifandon but my mains are Md, dongarompa, blackbutler, bfdi etc... object shows^^.</p>
 
 <img src="https://readme-typing-svg.demolab.com?font=Sans-serif&weight=500&size=70&duration=1000&pause=50&color=FC0032&center=true&vCenter=true&multiline=true&repeat=false&random=false&width=1300&height=140&lines=Not+Done!!" width="90%">
 
