@@ -7,6 +7,7 @@
 ## <div align="center"> About Me ۶ৎ
 
 <div align="center"> <p> Haii this is Nhara/Eleonore well maybe you seen me on the bakery (mostly)— and rarely seen outside. Just use She/it pronounce </p>
+
 <p ( ˊᵕˋ ; ).</p>
 
 <p> Before you interact!
