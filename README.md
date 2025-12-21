@@ -1,4 +1,4 @@
-![1765602663568.jpg](https://github.com/user-attachments/assets/82846b9b-3e32-4421-85e8-03fa7690e672)
+![5fbf6e36b86d79eb7e84b3e8fcee7636.gif](https://github.com/user-attachments/assets/d2fcaa2a-e2f8-4392-8ed8-bb3b2b39d13a)
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=2000&pause=4000&color=FC0032&center=true&width=400&lines=HAIHII+!!1!;WELCOME!+%E2%9C%A9)](https://git.io/typing-svg)
 
