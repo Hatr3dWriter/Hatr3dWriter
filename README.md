@@ -6,9 +6,7 @@
 
 ## <div align="center"> About Me ۶ৎ
 
-<div align="center"> <p> Haii this is Nhara/Eleonore well maybe you seen me on the bakery (mostly)— and rarely seen outside. Just use She/it pronounce </p>
-
-<p ( ˊᵕˋ ; ).</p>
+<div align="center"> <p> Haii this is Nhara/Eleonore well maybe you seen me on the bakery (mostly)— and rarely outside. Just use She/it pronounce ( ˊᵕˋ ; ).</p>
 
 <p> Before you interact!
  1. I'm a minor and don't get 2 weird. 2. Cant say im nice i just done it.
