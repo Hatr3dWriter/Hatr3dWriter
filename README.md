@@ -8,9 +8,6 @@
 
 <div align="center"> <p> Haii this is Nhara/Eleonore well maybe you seen me on the bakery (mostly)— and rarely outside. Just use She/it pronounce ( ˊᵕˋ ; ).</p>
 
-<p> Before you interact!
- 1. I'm a minor and don't get 2 weird. 2. Cant say im nice i just done it.
-
 <p> I don't have any dni, anyone can interact w i dont mind at all except p3do. feel free to stop talking talking w me.<p>
 
 ## <div align="center"> More info!!
@@ -20,6 +17,6 @@
 ![648dd52917d30683cd9cb0465b6a464a.gif](https://github.com/user-attachments/assets/05f419b8-ef8f-4952-b64c-d21cdee2effe)
 
 
-<p> Im a multifandon but my mains are Md, dongarompa, blackbutler, bfdi etc... object shows^^.</p>
+<p> Im a multifandon but my mains are Md, dongarompa, blackbutler, bfdi etc... object shows^^. dw i also like the other fandom from around the map even the others that i dont know existed </p>
 
 <img src="https://readme-typing-svg.demolab.com?font=Sans-serif&weight=500&size=70&duration=1000&pause=50&color=FC0032&center=true&vCenter=true&multiline=true&repeat=false&random=false&width=1300&height=140&lines=Not+Done!!" width="90%">
