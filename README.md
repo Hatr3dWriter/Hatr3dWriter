@@ -19,4 +19,4 @@
 
 <p> Im a multifandon but my mains are Md, dongarompa, blackbutler, tfc, bfdi etc... object shows^^. dw i also like the other fandom from around the map even the others that i dont know existed </p>
 
-<img src="https://readme-typing-svg.demolab.com?font=Sans-serif&weight=500&size=70&duration=1000&pause=50&color=FC0032&center=true&vCenter=true&multiline=true&repeat=false&random=false&width=1300&height=140&lines=Not+Done!!" width="90%">
+<img src="https://readme-typing-svg.demolab.com?font=Sans-serif&weight=500&size=70&duration=1000&pause=50&color=FC0032&center=true&vCenter=true&multiline=true&repeat=false&random=false&width=1300&height=140&lines=Not+Done+Yet!!" width="90%">
