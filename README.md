@@ -2,6 +2,6 @@
 
 <p align="center"> Eleonoree , she/her , 16
 
-— is art isn't mine
+— is art isn't mine (Clownpierce)
 
 
