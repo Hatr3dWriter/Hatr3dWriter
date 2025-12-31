@@ -1,12 +1,12 @@
 <div align="center">
 
+![](https://komarev.com/ghpvc/?username=Hat3redwriter&color=FC0032)
+
 ![5fbf6e36b86d79eb7e84b3e8fcee7636.gif](https://github.com/user-attachments/assets/d2fcaa2a-e2f8-4392-8ed8-bb3b2b39d13a)
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=2000&pause=4000&color=FC0032&center=true&width=400&lines=HAIHII+!!1!;WELCOME!+%E2%9C%A9)](https://git.io/typing-svg)
 
 ## <div align="center"> About Me ۶ৎ
-
-![](https://komarev.com/ghpvc/?username=srupslurp&color=FC0032)
 
 <div align="center"> <p> Haii this is Nhara/Eleonore well maybe you seen me on the bakery (mostly)— and rarely outside. Just use She/it pronounce ( ˊᵕˋ ; ).</p>
 
