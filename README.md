@@ -6,6 +6,8 @@
 
 ## <div align="center"> About Me ۶ৎ
 
+![](https://komarev.com/ghpvc/?username=srupslurp&color=FC0032)
+
 <div align="center"> <p> Haii this is Nhara/Eleonore well maybe you seen me on the bakery (mostly)— and rarely outside. Just use She/it pronounce ( ˊᵕˋ ; ).</p>
 
 <p> I don't have any dni, anyone can interact w i dont mind at all except p3do. feel free to stop talking talking w me.<p>
