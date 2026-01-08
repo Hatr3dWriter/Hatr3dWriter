@@ -2,7 +2,7 @@
 
 <p align="center"> Eleonoree , she/her
 
-<a https://scarlanternskibidi.straw.page>strawpage</a> <img width="18"  
+<a https://scarlanternskibidi.straw.page> <strawpage</a> <img width="18"  
 
 — is art isn't mine (Clownpierce)
 
