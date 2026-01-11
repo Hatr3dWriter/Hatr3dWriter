@@ -1,8 +1,9 @@
-![Untitled12_20251231154935.png](https://github.com/user-attachments/assets/8d17f973-23e4-41d5-add3-8f0f4267aa92)
+![Untitled12_20260111200549.png](https://github.com/user-attachments/assets/ce573388-983d-4980-991b-87aba7246018)
+
 
 <p align="center"> Eleonoree , she/her
 
-  <a href=https://scarlanternskibidi.straw.page>strawpage</a> <img width="18">
+  <a alightn="center"> <href=https://scarlanternskibidi.straw.page>strawpage</a> <img width="18">
 
 — is art isn't mine (Clownpierce)
 
