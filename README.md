@@ -3,7 +3,4 @@
 
 <p align="center">???
 
-<p align="center">
-  <a
-href=https://scarlanternskibidi.straw.page>strawpage</a> <img width="18">
 
