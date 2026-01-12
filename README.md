@@ -7,7 +7,3 @@
   <a
 href=https://scarlanternskibidi.straw.page>strawpage</a> <img width="18">
 
-<a hre=https://pronouns.cc/@KewlWriter601>Pronounce</a> <img width="18"> 
-
-
-
